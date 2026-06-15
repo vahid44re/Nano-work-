@@ -1,2 +1,2 @@
 # Nano-work-
-update the redmi file
+edit again hurry again fine
