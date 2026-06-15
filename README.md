@@ -1,2 +1,2 @@
 # Nano-work-
-no I didn't read my file
+update the redmi file
